@@ -5,7 +5,7 @@ The original lava lamp was invented in 1963 by British entrepreneur Edward Crave
 The original lava lamp design was characterized by its simple yet innovative use of materials and principles of thermodynamics. The combination of the glass cylinder, metallic base, and cap, along with the proprietary wax and liquid formula, created a product that was both aesthetically pleasing and functionally intriguing. The lamp's ability to transform any room with its calming light and dynamic motion made it a beloved item in homes, offices, and dorm rooms. Over the years, the lava lamp has remained an iconic symbol of mid-20th-century design and continues to be a popular novelty item, evoking a sense of nostalgia and timeless appeal.
 
 #
-#### Modern Lava Lamp Concept
+#### Modern Square-Sided Lava Lamp Concept
 
 The modern square-sided lava lamp concept features a sleek and contemporary design that diverges from the traditional cylindrical shape commonly associated with classic lava lamps. The lamp's body is composed of a geometric, square-sided glass enclosure, which gives it a striking and sophisticated appearance. The sharp, clean lines of the square design enhance its modern aesthetic, making it an ideal addition to minimalist and contemporary interior decor.
 
